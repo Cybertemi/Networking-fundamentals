@@ -80,6 +80,6 @@ The TCP/IP model is used for network communication and ensuring successful data 
  🚀 Lets Connect for future insights and contribution
 
 
-📧 Email: temitopeilori@example.com
-🔗 LinkedIn: Temitope Ilori
+📧 Email: iloritemitope1999@gmail.com
+🔗 LinkedIn: https://www.linkedin.com/in/iloritemi
 
